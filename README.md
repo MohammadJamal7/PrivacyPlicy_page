@@ -1,1 +1,0 @@
-# PrivacyPlicy_page
